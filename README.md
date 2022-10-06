@@ -1,6 +1,6 @@
  /names/
-gol valden mizu k ru lumine
- edgar aether atlas six
+gol♡valden♡mizu♡k♡ru♡lumine
+♡edgar♡aether♡atlas♡six
 
 /about me/
 i speak english, neogreek some french 

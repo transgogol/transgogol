@@ -41,45 +41,46 @@ chloe bourgeois gojo satoru itadori yuuji
 fushiguro megumi kugisaki nobara peter hale athena hermes/p
 
 /byf/
--i sometimes say the f slur and 
+- i sometimes say the f slur and 
 (very rarely) the t slur (i'm gay and trans)
--if you think you like dazai sigma shu 
+- if you think you like dazai sigma shu 
 luca rui endeavor and hades 
 more than me you make me feel iffy 
 esp if i don't like you or if we're not close
--i like endeavor from bnha
--i don't hate mori ougai
--I might post about snakes and include pictures of them
--i dislike a lot of popular ships and will
+- i like endeavor from bnha
+- i don't hate mori ougai
+-vI might post about snakes and include pictures of them
+- i dislike a lot of popular ships and will
  shit talk about them
 
 /dni/
--calls people “bitch” (even as a joke) 
+- calls people “bitch” (even as a joke) 
 when they barely know eachother
--doesn't like/hates cats
--hcs quiet and cold characters as asexual and/or aromantic 
+- doesn't like/hates cats
+- hcs quiet and cold characters as asexual and/or aromantic 
 when you're not ace/aro yourself
 - non-nblm/non-mlm who ships more mlm ships 
 than wlw nblw and hetero shops
--fujoshi
--skk sskk eichishu bkdk alvaluca 
+- fujoshi
+- skk sskk eichishu bkdk alvaluca 
 mafuena kuroshou shipper
 
 /PLEASE INT/
-+if you don't fit my dni and have the same 
+- if you don't fit my dni and have the same 
 interests as me please interact
--dazai, sigma, rui, 
+- dazai, sigma, rui, 
 akito , tsukasa, shu, rei, rinne, 
 luca, victor irl/fictive
--dazai, sigma, shu, rui, 
+- dazai, sigma, shu, rui, 
 akito , tsukasa, 
 rei, rinne, luca, victor skin
 
-cuddling - ✔️
-hiding behind me- ✔️
-covering me - only if we've talked 
-booping me- ✔️
-kissing me- only if we've talked and 
+/interactions/
+- cuddling ✔️
+- hiding behind me- ✔️
+- covering me - only if we've talked 
+- booping me- ✔️
+- kissing me- only if we've talked and 
 you're one of “the sillies”+ fyodor
 
 

@@ -1,6 +1,7 @@
  /names/
-gol♡valden♡mizu♡k♡ru♡lumine
-♡edgar♡aether♡atlas♡six
+ 
+gol/valden/mizu/k/ru/lumine
+/edgar/aether/atlas/six
 
 /about me/
 i speak english, neogreek some french 
@@ -9,10 +10,10 @@ i also have a cat
 
 /interests/
 uhh im currently fixated on 
-identity v (sorry) 
 ensemble stars, miraculous tales of ladybug and chat noir 
 and bungou stray dogs 
-my normal (not really) interests are 
+my normal (not really) interests 
+are identity v (sorry),
 project sekai, stardew valley, 
 mystic messenger my hero academia 
 (i swear i don't drool over highschoolers 
@@ -43,13 +44,8 @@ fushiguro megumi kugisaki nobara peter hale athena hermes/p
 /byf/
 - i sometimes say the f slur and 
 (very rarely) the t slur (i'm gay and trans)
-- if you think you like dazai sigma shu 
-luca rui endeavor and hades 
-more than me you make me feel iffy 
-esp if i don't like you or if we're not close
 - i like endeavor from bnha
-- i don't hate mori ougai
--vI might post about snakes and include pictures of them
+- i don't hate mori from bsd
 - i dislike a lot of popular ships and will
  shit talk about them
 
@@ -62,18 +58,24 @@ when you're not ace/aro yourself
 - non-nblm/non-mlm who ships more mlm ships 
 than wlw nblw and hetero shops
 - fujoshi
+- views the traveler from genshin impact
+as a self insert and only ships traveler ships
+×because of that 
 - skk sskk eichishu bkdk alvaluca 
 mafuena kuroshou shipper
 
 /PLEASE INT/
 - if you don't fit my dni and have the same 
-interests as me please interact
+interests as me please interact×
 - dazai, sigma, rui, 
 akito , tsukasa, shu, rei, rinne, 
-luca, victor irl/fictive
+luca, victor, endeavor, licorice cookie, adrien, chloe, gabriel agreste, felix irl/fictive/
+copylink/fictkin
 - dazai, sigma, shu, rui, 
 akito , tsukasa, 
-rei, rinne, luca, victor skin
+rei, rinne, luca, victor, shigaraki, endeavor, chloe, 
+adrien, gabriel agreste, felix
+shoto, licorice cookie skin
 
 /interactions/
 - cuddling ✔️
@@ -93,7 +95,7 @@ akiyama mizuki
 lumine (traveler)
 hawks/ keigo takami
 yuta okkotsu
-(all episodic? i think thats the word for it)
-I don't give a shit about doubles or whatever for now
+red velvet cookie
+lila rossi
 
-not gonna make a kinlist to spare myself from more public humiliation
+all episodic

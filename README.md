@@ -1,101 +1,89 @@
- /names/
- 
-gol/valden/mizu/k/ru/lumine
-/edgar/aether/atlas/six
+mainly preferred names are **nikolai**/**jesse**/lumine[+](https://en.pronouns.page/@transgogol)
+                   /**about me**/
+i am 14 white I'm mentally ill (undiagnosed)
+I'm a singlet I speak english, neogreek and I'm learning french 
+i sometimes use “:3” unironically just tell me to stop if that annoys you
 
-/about me/
-i speak english, neogreek some french 
-and very little archaic greek 
-i also have a cat 
+/me/
+*italics*- media appearance 
+**bold**- important 
+***bold italics***- just me
+(fictives don't count as doubles) 
+
+->๑doubles dni๑<-
+*Nina The K!ller
+Edgar Valden*
+
+->✭doubles iffy/ask✭<-
+***Nikolai Gogol***
+***Hibiki Wataru***
+***Lumine/Traveler***
+**Takami Keigo/Hawks**
+**Akiyama Mizuki**
+*Solomon (Obey Me)*
+***Jesse Pinkman***
+**Ignacio Varga “Nacho”**
+
+->✿doubles fine✿<-
+*Shinso Hitoshi
+Ogami Koga 
+HiMERU
+Yuta Okkotsu*
+**The Joker** (LEGO!Joker mostly)
+*Red Velvet Cookie
+Jack Frost (ROTG)
+Wednesday Addams
+The Onceler*
+
+->♡doubles loved♡<-
+*Lila Rossi*
 
 /interests/
-uhh im currently fixated on 
-ensemble stars, miraculous tales of ladybug and chat noir 
-and bungou stray dogs 
-my normal (not really) interests 
-are identity v (sorry),
-project sekai, stardew valley, 
-mystic messenger my hero academia 
-(i swear i don't drool over highschoolers 
-i only cry over endeavor and hawks)
-genshin impact cookie run (sorry) 
-jujutsu kaisen and greek mythology
+✰ uhh im currently hyperfixated on breaking bad, better call saul, creepypasta, bungou stray dogs other interests are teen wolf, ensemble stars, my hero academia (sorry), sanrio, identity v (sorry), project sekai, bandori, stardew valley, mystic messenger genshin impact, cookie run (sorry), dream daddy, obey me(sorry), jujutsu kaisen, alice in borderland, arcane, DC (mostly Justice League), ALTER EGO, greek mythology, classical literature, miyano mamoru, GRANDRODEO, kishow, j-pop, rebzyyx, scenecore music in general, Arctic Monkeys, Queen, melanie martinez, lana del rey, mitski, sir chloe, ricky montgomery✰
 
 /the sillies/ 
-(im SO normal (lie) for them)
-dazai osamu sigma itsuki shu sakuma rei amagi rinne kamishiro rui 
-asahina mafuyu otori emu tenma tsukasa 
-shinonome akito luca balsa victor grantz orpheus 
-licorice cookie zhongli venti diluc ragnivndr adrien 
-agreste inumaki toge derek hale cronan darkwood hades/r 
-ranpo edogawa kunikida doppo bram stoker 
-aya koda tanizaki junichiro 
-fukuzawa yukichi akutagawa ryuunosuke 
-hatsune miku kagamine len kagamine rin megurine luka 
-KAITO aoyagi toya yoisaki kanade 
-shiraishi an andrew kreiss memory 
-raiden ei aether (traveler) poison 
-mushroom cookie strawberry crepe cookie dark 
-enchantress cookie dark choco cookie todoroki shoto 
-todoroki enji kagami tsurugi lila rossi 
-chloe bourgeois gojo satoru itadori yuuji 
-fushiguro megumi kugisaki nobara peter hale athena hermes/p
+/r
+walter hartwell white eduardo lalo salamanca gustavo fring saul goodman dazai osamu itsuki shu sakuma rei amagi rinne nagisa ran tenshouin eichikamishiro rui asahina mafuyu shizuku hinomori tenma tsukasa shinonome akito luca balsa victor grantz licorice cookie zhongli diluc ragnivndr dainsleif alhaitham adrien agreste chloe bourgeois batman enji todoroki/endeavor inumaki toge shigaraki tomura hakamada tsunagu neito monoma pitch black jeff the killer
 
-/byf/
-- i sometimes say the f slur and 
-(very rarely) the t slur (i'm gay and trans)
-- i like endeavor from bnha
-- i don't hate mori from bsd
-- i dislike a lot of popular ships and will
- shit talk about them
+/p
+walter hartwell white saul goodman mike ehrmantraut eduardo lalo salamanca marco salamanca gustavo fring badger skinny pete leonel salamanca jane margolis combo andrea cantillo bram stoker sigma sakasaki natsume shinkai kanata tenshouin eichi yuzuru fushimi himemiya tori hatsune miku kagamine len kagamine rin megurine luka KAITO aoyagi toya yoisaki kanade shiraishi an galatea andrew kreiss memory venti raiden ei aether (traveler) tartaglia paimon poison mushroom cookie strawberry crepe cookie dark enchantress cookie dark choco cookie kyoka jirou todoroki shoto todoroki fuyumi todoroki enji/endeavor aizawa shota gojo satoru itadori yuuji fushiguro megumi maki zenin slenderman the lorax
+
+/byi/ 
+- I don't usually use tone indicators
+- the only tone indicators i sometimes need are “/srs /gq /nm /r”
+- i like endeavor from bnha 
+- i dislike a lot of popular ships and will shit talk about them
+- don't talk abt animal ab*se or just animals in pain with me pls
 
 /dni/
-- calls people “bitch” (even as a joke) 
-when they barely know eachother
-- doesn't like/hates cats
-- hcs quiet and cold characters as asexual and/or aromantic 
-when you're not ace/aro yourself
-- non-nblm/non-mlm who ships more mlm ships 
-than wlw nblw and hetero shops
-- fujoshi
-- views the traveler from genshin impact
-as a self insert and only ships traveler ships
-×because of that 
-- skk sskk eichishu bkdk alvaluca 
-mafuena kuroshou shipper
+italics: idrc just ask to int you'll prolly be fine
+normal: i can make exceptions 
+bold: dni ever 
+
+-  **basic dni criteria**
+- chronically online 
+- supports “cancel culture”
+- *if you're gonna tell me that you like **dazai** shu luca rui endeavor and **lalo** more than me* 
+- **cat hater** 
+- **“fujoshi”**
+- **skk** *sskk* **dabihawks shinkami zhongchi eichishu bkdk alvaluca** *xiaoven* eimiko *ruikasa* **kaeluc chaether licopom pastryvelvet** **adrienette marichat ladynoir ladrien** shipper 
+- views the traveler from genshin impact as a self insert 
+- traveler age debaters
+- **shit talks endeavor or dazai (idc if you don't like them just don’t shit talk them)**
 
 /PLEASE INT/
 - if you don't fit my dni and have the same 
 interests as me please interact×
-- dazai, sigma, rui, 
-akito , tsukasa, shu, rei, rinne, 
-luca, victor, endeavor, licorice cookie, adrien, chloe, gabriel agreste, felix irl/fictive/
-copylink/fictkin
-- dazai, sigma, shu, rui, 
-akito , tsukasa, 
-rei, rinne, luca, victor, shigaraki, endeavor, chloe, 
-adrien, gabriel agreste, felix
-shoto, licorice cookie skin
-
+-if you're any of my sillies except aether cuz I already know him
+- sillies skins
+- 
 /interactions/
 - cuddling ✔️
 - hiding behind me- ✔️
 - covering me - only if we've talked 
 - booping me- ✔️
 - kissing me- only if we've talked and 
-you're one of “the sillies”+ fyodor
+you're one of “the sillies/r”+ fyodor
 
 
 
-/*sighs* me irl/
-nikolai gogol
-hibiki wataru
-edgar valden
-akiyama mizuki
-lumine (traveler)
-hawks/ keigo takami
-yuta okkotsu
-red velvet cookie
-lila rossi
-
-all episodic
